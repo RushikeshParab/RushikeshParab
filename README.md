@@ -7,7 +7,7 @@
 
 - 📫 How to reach me *rushikeshparab46@gmail.com*
 
-- ⚡ Fav Quote * : The man who loves walking will walk further than the man who loves the destination.*
+- ⚡ Fav Quote : The man who loves walking will walk further than the man who loves the destination.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
